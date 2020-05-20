@@ -1,1 +1,0 @@
-# In-ynieria-oprogramowania
